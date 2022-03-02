@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ffionneal
 - 👀 I’m interested in psychology, teaching and marketing!
 - 🌱 I’m currently studying BSc Psychology @ the University of Manchester
-- 💞️ I’m looking to collaborate on anythink exciting
+- 💞️ I’m looking to collaborate on anything exciting
 - 📫 Email me :)
 
 <!---
